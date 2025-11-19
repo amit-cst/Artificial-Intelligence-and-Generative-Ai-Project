@@ -1,1 +1,0 @@
-# Artificial-Intelligence-and-Generative-Ai-Project
